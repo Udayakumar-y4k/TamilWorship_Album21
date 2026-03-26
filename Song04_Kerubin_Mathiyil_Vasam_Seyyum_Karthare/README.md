@@ -1,4 +1,4 @@
-# கேருபீன்கள் மத்தியில் வாசம் செய்யும் கர்த்தரே | O Lord Who Dwells Between the Cherubim | Album 21 Song 2
+# கேருபீன்கள் மத்தியில் வாசம் செய்யும் கர்த்தரே | O Lord Who Dwells Between the Cherubim | Album 21 Song 4
 
 Psalm 80 – Prayer for restoration: “Shine upon us!” God enthroned between cherubim, plea for Ephraim, Benjamin, Manasseh. Points to Christ, the true Shepherd who restores His people.
 Closing Prayer
